@@ -1,0 +1,1 @@
+# vanilla-panorama-plus-lite
